@@ -1,3 +1,3 @@
 # Prospect-Predictions
 
-### Coming Soon...
+### Coming Soon
